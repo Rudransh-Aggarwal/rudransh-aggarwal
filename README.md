@@ -1,5 +1,5 @@
-## Hi my name is Rudransh <br\>
-dont look too hard, makes me look stupid <br\>
+## Hi my name is Rudransh <br/>
+dont look too hard, makes me look stupid <br/>
 # 💫 About Me:
 A young fellow mildly amused by technology<br>
 
